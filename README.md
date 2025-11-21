@@ -12,7 +12,7 @@ I love turning **messy real-world data** into insights and end-to-end solutions 
 - 🧪 Passionate about combining **science, analytics, and storytelling**  
 - 🌏 Based in **Jakarta, Indonesia**  
 - 💬 I enjoy explaining technical stuff in simple, human language  
-- ☕ Currently fueled by coffee, curiosity, and way too many notebooks
+- ☕ Currently fueled by sitcoms, pop culture, and way too many films
 
 ---
 
